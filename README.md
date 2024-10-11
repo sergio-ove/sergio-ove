@@ -3,7 +3,7 @@
 
 - 📫 Contacta conmigo **sergio.ove.pas@gmail.com**
 
-- 📄 Aquí puedes ver mi curriculum [https://drive.google.com/file/d/1E5WyYQWWs2SoYfzwJAfqBCa0aWpQxMWl/view?usp=share_link](https://drive.google.com/file/d/1E5WyYQWWs2SoYfzwJAfqBCa0aWpQxMWl/view?usp=share_link)
+- 📄 Aquí puedes ver mi curriculum [https://drive.google.com/file/d/15wla7D_EV59CvUVvT3JbTyccqhCYl6EU/view?usp=sharing](https://drive.google.com/file/d/1E5WyYQWWs2SoYfzwJAfqBCa0aWpQxMWl/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
